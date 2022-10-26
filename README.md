@@ -1,6 +1,6 @@
 # Sobre Mim
 
-## Olá! :smile:
+## Olá! :blush:
 
 _____________________________________________
 Me chamo Rosa Hoffmann
