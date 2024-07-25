@@ -9,6 +9,6 @@ Me chamo Rosa Hoffmann
 
 🔸Estou participando do Grupo de Estudos Formadores em Ação. :blush: 
 
-🔸Meu e-mail é rosa.hoffmann@escola.pr.gov.br :star:
+🔸Meu e-mail é rosa.hoffmann@escola.pr.gov.br 📫
 
 ![](https://media1.tenor.com/m/GythNLlEJtYAAAAC/code-encoding.gif)
