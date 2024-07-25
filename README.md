@@ -1,6 +1,6 @@
 # Sobre Mim
 
-## Olá! :eyes:
+## Olá! 💛
 
 _____________________________________________
 Me chamo Rosa Hoffmann
