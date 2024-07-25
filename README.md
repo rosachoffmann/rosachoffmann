@@ -11,4 +11,3 @@ Me chamo Rosa Hoffmann
 
 🔸Meu e-mail é rosa.hoffmann@escola.pr.gov.br 📫
 
-![](https://media1.tenor.com/m/GythNLlEJtYAAAAC/code-encoding.gif)
