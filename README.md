@@ -11,5 +11,5 @@ Me chamo Rosa Hoffmann
 
 🔸Meu e-mail é rosa.hoffmann@escola.pr.gov.br 📫
 
-![](https://myoctocat.com/assets/images/octocats/octocat-26.png)
+![](https://raw.githubusercontent.com/profmarciooliveira4/copeticoes-estudantis-e-escolares/main/camisetas2023.jpeg)
 
